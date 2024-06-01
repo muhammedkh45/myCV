@@ -1,7 +1,7 @@
 # Muhammed Khalid
 
 
-01095488613 | mohamedkh4050@gmail.com | [LinkedIn](https://www.linkedin.com/in/mohamed-khaled-1b837523b/) | [GitHub](https://github.com/muhammedkh45)
+01095488613 | mohamedkh4050@gmail.com | [LinkedIn](https://www.linkedin.com/in/mohamed-khaled-1b837523b/) | [GitHub](https://github.com/muhammedkh45)|[Visual CV](https://drive.google.com/file/d/1b_8df2LdvhqwnX6BXyuau14Hkng8AaIf/view?usp=sharing)
 
 ---
 
