@@ -1,5 +1,5 @@
 # Muhammed Khalid
-![Muhammed Khalid](https://drive.google.com/file/d/112INN1uqciIXeQHZw9kCekzFZQIOy31E/view)
+
 
 01095488613 | mohamedkh4050@gmail.com | [LinkedIn](https://www.linkedin.com/in/mohamed-khaled-1b837523b/) | [GitHub](https://github.com/muhammedkh45)
 
